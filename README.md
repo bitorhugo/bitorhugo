@@ -1,6 +1,6 @@
 <-- Hello Bisitor -->
 - 👋 I’m @bitorhugo, nice to meet you !!
-- 🌱 I’m currently learning C
+- 🌱 Currently getting strong bases for future carrer on Software
 - 📫 How to reach me: Ohhhh Bitor#8301 on Discord || vitorhugosantos144@gmail.com
 
 <!---
