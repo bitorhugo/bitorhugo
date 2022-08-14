@@ -1,2 +1,2 @@
-- 🚶‍♂️ size 4 tab dev
+- 🚶‍♂️ size 4 tab
 - 📫 Ohhhh Bitor#8301 on Discord || vitorhugosantos144@gmail.com
