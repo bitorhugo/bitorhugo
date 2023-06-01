@@ -1,2 +1,2 @@
-- 4 size tab dev
+- 4 sized tab dev
 - 📫 Ohhhh Bitor#8301 on Discord || vitorhugosantos144@gmail.com
